@@ -1,0 +1,1 @@
+# automated-shine-job-search
